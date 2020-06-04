@@ -1,2 +1,5 @@
 # Exercice-Cadavre-Exquis-Marie
-Petite histoire
+Il était une fois, dans un monde pas si lointain...  
+Un groupe d'amis décida d'organiser un barbecue géant.  
+Certains furent chargés de se procurer des mets divers et variés, tandis que d'autres s'occupèrent de décorer les lieux.   
+Tout semblait présager une bonne soirée mais...  
