@@ -11,3 +11,4 @@ Au fur et à mesure que la soirée avançait, de plus en plus de canaris apparai
 Mais d'où peuvent-ils bien venir ?  
 C'était enfaite une réserve naturelle de canaris qui a laissé la porte ouverte de des cages principaux 10 000 canaris se sont évadé, 
 quelle histoire ....
+En plus de la pluie, l'invasion de canaris apeurés, c'était une pluie de crottes de canaris qui s'abattait sur eux ! Les canaris en force par le nombre, se sont mis à manger tout le pain qu'il y avait sur les tables !
